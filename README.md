@@ -1,3 +1,3 @@
 # nextoftcasestudy
 
-https://appetize.io/app/7b7jashtpay4ldrrwmapzltcoe?device=pixel7&osVersion=13.0
+https://appetize.io/app/e6zzpjwrp3gemt6nmmoxkgzs3u?device=pixel7&osVersion=13.0
